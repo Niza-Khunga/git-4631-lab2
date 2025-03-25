@@ -1,1 +1,1 @@
-Team Lead: Niza Khunga
+Team Lead: Niza Nicholas Khunga
