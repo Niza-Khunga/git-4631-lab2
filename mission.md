@@ -1,2 +1,2 @@
-Team Lead: Nephas Kango
+Team Lead: Kango Nephas
 Team lead: Enala Saishi
